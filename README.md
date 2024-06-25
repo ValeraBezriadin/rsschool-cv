@@ -1,1 +1,1 @@
-# rsschool-cvhttps://ValeraBezriadin.github.io/rsschool-cv/cv
+https://ValeraBezriadin.github.io/rsschool-cv/cv
